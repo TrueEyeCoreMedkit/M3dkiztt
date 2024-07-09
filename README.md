@@ -7,7 +7,7 @@
 <hr class="dashed">
 <h3>SEMI-OPEN</h3> hyperatana(if i'm hyperlaser.), swocket(if i'm sword or rocket)
 <hr class="dashed">
-<h3>STRICT Platonic</h3> , <b>swordkit(i don't ship it but follow my bounderies)</b> , valkbox(<b>i seen them as besties goober, coming from boombox fictionkin</b>)
+<h3>STRICT Platonic</h3> , <b>swordkit(i know they're cannoly friends, sorry.. but follow my bounderies)</b> , valkbox(<b>i seen them as besties goober, coming from boombox fictionkin</b>)
 <hr class="dashed">
 <h3>platonic</h3> boomslingskate(poly of boombox,slingshot, and skateboard)
 <hr class="dashed">
