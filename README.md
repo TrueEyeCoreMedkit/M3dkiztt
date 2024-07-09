@@ -9,5 +9,5 @@
 <h3>STRICT Platonic</h3> , <b>swordkit(i don't ship it but follow my bounderies)</b> , valkbox(<b>i seen them as besties goober, coming from boombox fictionkin</b>)
 <hr class="dashed">
 <h3>platonic</h3> boomslingskate(poly of boombox,slingshot, and skateboard)
-<h3>STRICT FRIENDS ONLY</h3> subkit(<b>pls respect my friends, if you gonna hate them for shipping this.</b>), brokerzuka(maybe for broker friends or known friend of mines is <a href="https://github.com/afkxvoid">@broker/deimos!</a>
-)
+<hr class="dashed">
+<h3>STRICT FRIENDS ONLY</h3> subkit(<b>pls respect my friends, if you gonna hate them for shipping this.</b>), brokerzuka(maybe for broker friends or known friend of mines is <a href="https://github.com/afkxvoid">@broker/deimos!</a>)
