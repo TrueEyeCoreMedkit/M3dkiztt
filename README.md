@@ -1,5 +1,6 @@
 <p align="center">
   <h2>Medkit's ship tier list!</h2>
+  <h5>This is not tend to offended anyone, this is just how i'm comfortable w/ to it</h5>
 <img src = "https://i.imghippo.com/files/A6uEh1720487386.png">
 
 <h3>OPEN</h3> ghoststaff, <b>medhammer</b> , medstaff
