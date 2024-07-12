@@ -1,4 +1,11 @@
 <p align="center">
+  <h1>Heyo, i'm Medkit/Boombox aka Kiz/Wonder</h1>
+  (i'm also known by sitting on the regretevator area or sometimes at the docks with the trees)<br>i may come cross as akward and sometimes shy.
+  <img src="https://i.postimg.cc/ZnPxXMfg/pony-town-med-remake-c-h-kin-stand-name-fixed-padded-4x.gif"> 
+  
+  My medkit desgin is from on Sillypng on Twt! (i love their artstyle which it suits me :)! )<br>
+  (<b>i'm mostly medkit and boombox main fictionkin,</b> which i prefer them as "me" as if <b>NOT</B> in irl way/nm)
+  
   <h2>Medkit's ship tier list!(bounderies edition)</h2>
 <details><summary>click at risk</summary>
     <pre>
