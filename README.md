@@ -1,5 +1,6 @@
 <p align="center">
   <h1>Heyo, i'm Medkit/Boombox aka Kiz/Wonder</h1>
+  <img src="https://i.postimg.cc/BbnppFwm/ezgif-com-resize.gif">
   (i'm also known by sitting on the regretevator area or sometimes at the docks with the trees)<br>i may come cross as akward and sometimes shy.
   <img src="https://i.postimg.cc/ZnPxXMfg/pony-town-med-remake-c-h-kin-stand-name-fixed-padded-4x.gif"> 
   
